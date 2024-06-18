@@ -1,0 +1,1 @@
+# TugasUAS_PatriciaElisabethSimanjuntak_Akuntansi_038
